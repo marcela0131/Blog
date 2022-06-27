@@ -7,6 +7,6 @@ Mi primera prioridad es el aprender para luego poner en práctica, con los curso
 
 Also I am improving my english hope to start learning a new language.
 
-**Este readme.md es solo de práctica** nada serio o definitivo en este momento. Recomiendo aprender y practicar en lo que te sea apasionante :tw-1f603:. 
+**Este readme.md es solo de práctica** nada serio o definitivo en este momento. Recomiendo aprender y practicar en lo que te sea apasionante :) 
 
 *I hope that everyone like it.*
